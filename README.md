@@ -1,7 +1,8 @@
 # presentaciones-1-DAM
-##Pre
+## TECNILÓGICA - PARTE DE ACCENTURE
 
 <http://jgm1996.x10host.com/presentaciones/tecnilogica/>
-2
+
+## ACTIVIDADES EN LA EMPRESA
 
 <http://jgm1996.x10host.com/presentaciones/actividades/>
